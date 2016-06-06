@@ -53,7 +53,7 @@ Unit Code: WEB14204
 
 2.[Kyle](https://app.xtensio.com/folio/vsovb7q2)
 
-[Concept one-pager](https://drive.google.com/drive/folders/0ByHkNH2IqZRJbDZ1NGRabjk3T0U)
+[Concept one-pager](https://drive.google.com/file/d/0B8FbXc-tTIoMOXBlS0MxdEFIVjg/view?usp=sharing)
 
 [Experience maps](https://drive.google.com/file/d/0B8FbXc-tTIoMOXBlS0MxdEFIVjg/view?usp=sharing)
 
